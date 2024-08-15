@@ -1,1 +1,5 @@
-# nycnews.github.io
+- [https://nycnews.github.io](https://nycnews.github.io)
+- [https://www.quora.com/profile/Linsey-Trang](https://www.quora.com/profile/Linsey-Trang)
+- [https://medium.com/@linseytrang](https://medium.com/@linseytrang)
+- [https://x.com/LinseyTrang](https://x.com/LinseyTrang)
+- [https://www.youtube.com/channel/UCyZqDng3u6prRduNvYK_J2w](https://www.youtube.com/channel/UCyZqDng3u6prRduNvYK_J2w)
